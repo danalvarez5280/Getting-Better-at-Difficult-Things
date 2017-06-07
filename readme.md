@@ -1,0 +1,1 @@
+I found this Gear Up was extremely helpful for my study and work habits. Knowing how to deal with overwhelming tasks and how to break down the problem into smaller problems that you can mostly solve then makes the giant problem into a smaller manageable task. I found this specifically helpful when approaching the static comp 3 project.
